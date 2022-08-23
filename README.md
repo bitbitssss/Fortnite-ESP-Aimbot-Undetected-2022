@@ -4,10 +4,10 @@
 Join To Our Discord Server And See Our Undetected Cheats
 ```
 ```sh-session
---> AbdoCoder#3157 or https://discord.gg/8dnNfDeZup
+--> https://discord.gg/bitcheats
 ```
 
-### 📌・ DISCORD : [BitCheats](https://discord.gg/8dnNfDeZup)  
+### 📌・ DISCORD : [BitCheats](https://discord.gg/bitcheats)  
 
 * ` WE GIVE YOU THE HIGHEST LEVEL OF SECURITY AND PRIVACY , DON'T WORRY`
  ```sh-session
