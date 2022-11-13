@@ -16,6 +16,6 @@ MY CHEATS , YOU CAN PLAY ON THE MAIN ACCOUT. IT WON"T GET YOU BANNED :)
 ***
 ***
 ### 📌・ Showcase :
-*  https://www.youtube.com/watch?v=HjZPg5xgJuo
-*  https://youtu.be/8KWBvlNatU8%7C%7C 
+*  https://www.youtube.com/watch?v=1wQLzwbH9DY
+*  https://www.youtube.com/watch?v=JNjWBm8RuDw
 
