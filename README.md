@@ -1,7 +1,7 @@
 ### Valorant-Aimbot-Undetected-2022.
 
 ```sh-session
-Join To Our Discord Server And See Our Undetected Cheats
+Join To Our Discord Server And See Our Undetected Cheats.
 ```
 ```sh-session
 --> https://discord.gg/bitchairs
